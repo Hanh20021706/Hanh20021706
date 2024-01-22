@@ -1,4 +1,6 @@
-![image](https://github.com/Hanh20021706/Hanh20021706/assets/97077296/2a2d9d6c-0ec5-4d69-8aef-eac26152532e)
+👋
+![image](https://github.com/Hanh20021706/Hanh20021706/assets/97077296/ccfacc66-4796-4c40-bfa6-f33c16ea7198)
+
 
 <h2 align="center"> Hi, I'm Hanh 👋</h2>
 
